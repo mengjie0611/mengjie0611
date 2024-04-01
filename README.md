@@ -21,7 +21,7 @@
 
 ### 关于我
 - [技术笔记](https://mengjie0611.github.io )
-- [微博](https://weibo.com/u/6039541529))
+- [微博](https://weibo.com/u/6039541529)
 
 > ***I love to make friends. so if you want to say hi, I'll be happy to meet you more!😊***
 
